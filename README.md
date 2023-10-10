@@ -1,1 +1,0 @@
-# alihan-tadal.github.io
